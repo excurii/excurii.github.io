@@ -488,24 +488,24 @@
 
 ![[IMG_2873.jpeg]](https://github.com/excurii/excurii.github.io/blob/master/_posts/attachments/IMG_2873.jpeg)
 
-![[IMG_2874.jpeg]](https://github.com/excurii/excurii.github.io/blob/master/_posts/attachments/IMG_2874.jpeg)![Uploading image.png…]()
+![[IMG_2874.jpeg]](https://github.com/excurii/excurii.github.io/blob/master/_posts/attachments/IMG_2874.jpeg)
 
-![[attachments/IMG_2823.jpeg]]
+![[attachments/IMG_2823.jpeg]](https://github.com/excurii/excurii.github.io/blob/master/_posts/attachments/IMG_2823.jpeg)
 
-![[attachments/IMG_2824.jpeg]]
+![[attachments/IMG_2824.jpeg]](https://github.com/excurii/excurii.github.io/blob/master/_posts/attachments/IMG_2824.jpeg)
 
-![[attachments/IMG_2825.jpeg]]
+![[attachments/IMG_2825.jpeg]](https://github.com/excurii/excurii.github.io/blob/master/_posts/attachments/IMG_2825.jpeg)
 
-![[attachments/IMG_2826.jpeg]]
+![[attachments/IMG_2826.jpeg]](https://github.com/excurii/excurii.github.io/blob/master/_posts/attachments/IMG_2826.jpeg)
 
-![[attachments/IMG_2827.jpeg]]
+![[attachments/IMG_2827.jpeg]](https://github.com/excurii/excurii.github.io/blob/master/_posts/attachments/IMG_2827.jpeg)
 
-![[attachments/IMG_2838.jpeg]]
+![[attachments/IMG_2838.jpeg]](https://github.com/excurii/excurii.github.io/blob/master/_posts/attachments/IMG_2838.jpeg)
 
-![[attachments/IMG_2839.jpeg]]
+![[attachments/IMG_2839.jpeg]](https://github.com/excurii/excurii.github.io/blob/master/_posts/attachments/IMG_2839.jpeg)
 
-![[attachments/IMG_2840.jpeg]]
+![[attachments/IMG_2840.jpeg]](https://github.com/excurii/excurii.github.io/blob/master/_posts/attachments/IMG_2840.jpeg)
 
-![[attachments/IMG_2841.jpeg]]
+![[attachments/IMG_2841.jpeg]](https://github.com/excurii/excurii.github.io/blob/master/_posts/attachments/IMG_2841.jpeg)
 
-![[attachments/IMG_2842.jpeg]]
+![[attachments/IMG_2842.jpeg]](https://github.com/excurii/excurii.github.io/blob/master/_posts/attachments/IMG_2842.jpeg)
