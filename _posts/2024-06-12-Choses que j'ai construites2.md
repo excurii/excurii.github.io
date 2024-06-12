@@ -1,4 +1,4 @@
-<img width="253" alt="image" src="https://github.com/excurii/excurii.github.io/assets/131859967/537ae724-c16d-4f2b-a673-4c10e925083b">![[IMG_8331.jpg]]({{site:url}}/images/2024-06-12-Choses que j'ai construites2/IMG_8331.jpg)
+![[IMG_8331.jpg]]({{site:url}}/images/2024-06-12-Choses que j'ai construites2/IMG_8331.jpg)
 ![[IMG_8342.jpg]]({{site:url}}/images/2024-06-12-Choses que j'ai construites2/IMG_8342.jpg)
 ![[IMG_8564.jpg]]({{site:url}}/images/2024-06-12-Choses que j'ai construites2/IMG_8564.jpg)
 ![[IMG_8565.jpg]]({{site:url}}/images/2024-06-12-Choses que j'ai construites2/IMG_8565.jpg)
