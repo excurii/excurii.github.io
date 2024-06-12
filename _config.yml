@@ -113,7 +113,7 @@ analytics:
 author:
   name             : "Your Name"
   avatar           : # path of avatar image, e.g. "/assets/images/bio-photo.jpg"
-  bio              : "I am an **amazing** person."
+  bio              : "Challenge yourself"
   location         : "Somewhere"
   email            :
   links:
